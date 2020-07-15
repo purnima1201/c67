@@ -1,1 +1,1 @@
-once upon a time there was a rabbit and tortoise. Rabbit was very proud that he can run very fast. So he decided to race with tortoise. Tortoise was very scared.
+once upon a time there was a rabbit and tortoise. Rabbit was very proud that he can run very fast. So he decided to race with tortoise. Tortoise was very scared. The audience was very eager to see the rabbit's fast speed.
